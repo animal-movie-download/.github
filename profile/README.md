@@ -3,7 +3,11 @@
 The Bollywood movie *Animal* revolves around the intense and emotionally charged relationship between a father and son. With stunning performances, gripping action, and intense drama, *Animal* has captured the attention of audiences across India. Here’s a closer look at the storyline and why it’s worth downloading and watching.
 
 ---
+👇👇👇👇👇👇👇👇👇👇👇👇
+[**𝗔𝗻𝗶𝗺𝗮𝗹 𝗺𝗼𝘃𝗶𝗲 𝗗𝗼𝘄𝗻𝗹𝗼𝗮𝗱 𝗟𝗶𝗻𝗸**](https://t.me/techapycoder)
 
+[**𝗔𝗻𝗶𝗺𝗮𝗹 𝗺𝗼𝘃𝗶𝗲 𝗗𝗼𝘄𝗻𝗹𝗼𝗮𝗱 𝗟𝗶𝗻𝗸**](https://t.me/techapycoder)
+👆👆👆👆👆👆👆👆👆👆👆👆👆👆👆👆👆👆👆👆👆👆👆
 ## The Story of *Animal*
 
 The film explores the complex dynamics between Ranbir Kapoor’s character, Ranvijay Singh, and his father, Balbir Singh, played by Anil Kapoor. Ranvijay adores his father but feels neglected due to Balbir’s dedication to building his billion-dollar business.
